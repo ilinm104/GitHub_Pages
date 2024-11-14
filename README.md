@@ -11,7 +11,7 @@
 и отчаянным прослыть,  
 понапрасну тут и там  
 не реветь по пустякам.  
-!.[Кот].(https://cloud.mail.ru/public/6KEh/j1jcxdmht)
+!.[Кот].(https://cloud.mail.ru/public/gP8F/udtsSXB3f)
 Хорошо  
 мальчишкой быть,  
 и в карманах всё носить.  
