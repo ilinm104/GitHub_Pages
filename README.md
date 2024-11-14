@@ -1,4 +1,4 @@
-![Кот].(https://cloud.mail.ru/public/up6e/Bxi8oRJ9Y)
+![Кот].(https://cloud.mail.ru/public/6KEh/j1jcxdmht)
 
 
 # Смешной стих "Хорошо мальчишкой быть"
