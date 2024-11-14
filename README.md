@@ -11,7 +11,7 @@
 и отчаянным прослыть,  
 понапрасну тут и там  
 не реветь по пустякам.  
-![Изображение](https://upload.wikimedia.org/wikipedia/commons/thumb/4/48/Markdown-mark.svg/1920px-Markdown-mark.svg.png "Логотип Markdown")
+![Изображение](https://cloud.mail.ru/public/gP8F/udtsSXB3f)
 Хорошо  
 мальчишкой быть,  
 и в карманах всё носить.  
