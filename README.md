@@ -1,4 +1,4 @@
-![Изображение](https://yandex.ru/images/search?pos=15&from=tabbar&img_url=https%3A%2F%2Fcs.pikabu.ru%2Fpost_img%2Fbig%2F2013%2F03%2F01%2F5%2F1362118704_629718980.jpg&text=%D0%BA%D0%BE%D1%82%D1%8B&rpt=simage&lr=38)
+![Изображение](https://yandex.ru/images/search?pos=25&from=tabbar&img_url=https%3A%2F%2Fi.pinimg.com%2Foriginals%2Fd7%2F4c%2F8a%2Fd74c8a449faa02ed99ca9517757f99ff.jpg&text=%D0%B9%D0%BE%D1%80%D0%BA%D1%88%D0%B8%D1%80%D1%81%D0%BA%D0%B8%D0%B9+%D1%82%D0%B5%D1%80%D1%8C%D0%B5%D1%80&rpt=simage&lr=38)
 # Смешной стих "Хорошо мальчишкой быть"
 
 Хорошо  
